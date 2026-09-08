@@ -32,7 +32,7 @@ permalink: /weeks/week-01/
 
 ## FRICTION｜摩擦
 
-
+我們沒有遇料到石頭會被放在桌子上以外的地方。  
 
 ## CONNECTION｜連結
 
